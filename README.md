@@ -6,4 +6,4 @@
 
 📫 How to reach me: muhammadzidan@arizona.edu
 
-🌐 Connect with me: linkedin.com/in/muhammad-akhsanul-zidan-2041711b7
+🌐 Connect with me: linkedin.com/in/muhammad-akhsanul-zidan-2041711b7 
